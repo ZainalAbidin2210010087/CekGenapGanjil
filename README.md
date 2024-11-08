@@ -1,2 +1,2 @@
 # CekGenapGanjil
- Latihan 1 (Muhammad Fajar Fitrianto_2210010748)
+ Latihan 1 (Zainal Abidin_2210010087)
